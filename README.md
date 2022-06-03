@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TermuXxXOS... Whats Good Playah!
+- 👀 I’m interested in ... New coding programs. im old self taught html in early 90's
+- 🌱 I’m currently learning ... all sorts of dev Mobile has been a foucus and linux
+- 💞️ I’m looking to collaborate on ... im not sure you wanna collab i still only know moderate old HTML. LOL
